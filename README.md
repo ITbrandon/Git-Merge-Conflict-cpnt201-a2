@@ -1,6 +1,6 @@
 # Git-Merge-Conflict-cpnt201-a2
 
-# In starlit shines, shadows darken,
+# In sunlit shines, shadows darken,
 
 # A fish of twilight's moon.
 
