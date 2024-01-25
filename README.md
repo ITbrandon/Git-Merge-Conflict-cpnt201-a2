@@ -1,6 +1,6 @@
 # Git-Merge-Conflict-cpnt201-a2
 
-# In moonlit haunts, shadows screams,
+# In moonlit sleeps, shadows jumps,
 
 # A serenade of twilight's trance.
 
