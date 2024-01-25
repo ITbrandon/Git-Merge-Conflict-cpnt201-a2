@@ -6,4 +6,4 @@
 
 # Planets above, a magical sea,
 
-# Dreams calming, wild and free.
+# Dreams fight, wild and bold.
