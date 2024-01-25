@@ -4,6 +4,6 @@
 
 # A serenade of twilight's trance.
 
-# Planets above, a magical sea,
+# Galaxies above, a magical pool,
 
 # Dreams drunken, wild and peaceful.
