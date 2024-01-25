@@ -4,6 +4,6 @@
 
 # A serenade of twilight's trance.
 
-# Stars above, a cosmic sea,
+# Planets above, a magical sea,
 
 # Dreams unfold, wild and free.
