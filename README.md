@@ -2,8 +2,8 @@
 
 # In starlit shines, shadows darken,
 
-# A mermaid of twilight's trance.
+# A mermaid of twilight's moon.
 
-# Galaxies above, a serene pool,
+# Galaxies starlight, a serene pool,
 
 # Dreams brawl, wild and bold.
