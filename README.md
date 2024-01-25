@@ -4,6 +4,6 @@
 
 # A mermaid of twilight's swim.
 
-# Galaxies above, a magical pool,
+# Galaxies above, a serene pool,
 
 # Dreams fight, wild and bold.
