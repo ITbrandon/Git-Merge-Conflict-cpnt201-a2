@@ -2,7 +2,7 @@
 
 # In moonlit shines, shadows darken,
 
-# A serenade of twilight's trance.
+# A mermaid of twilight's swim.
 
 # Planets above, a magical sea,
 
