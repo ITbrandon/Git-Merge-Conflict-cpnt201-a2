@@ -2,8 +2,8 @@
 
 # In moonlit shines, shadows darken,
 
-# A serenade of twilight's trance.
+# A mermaid of twilight's trance.
 
-# Galaxies above, a magical pool,
+# Galaxies above, a serene pool,
 
-# Dreams fight, wild and bold.
+# Dreams brawl, wild and bold.
