@@ -2,7 +2,7 @@
 
 # In moonlit shines, shadows darken,
 
-# A mermaid of twilight's trance.
+# A mermaid of twilight's moon.
 
 # Galaxies starlight, a serene pool,
 
