@@ -2,7 +2,7 @@
 
 # In sunlit shines, shadows darken,
 
-# A fish of midnight's moon.
+# A fish of twilight's Sun.
 
 # Galaxies starlight, a serene pool,
 
