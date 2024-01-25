@@ -1,6 +1,6 @@
 # Git-Merge-Conflict-cpnt201-a2
 
-# In moonlit shines, shadows darken,
+# In sunlit shines, shadows darken,
 
 # A mermaid of twilight's moon.
 
