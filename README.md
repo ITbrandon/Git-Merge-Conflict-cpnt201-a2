@@ -2,7 +2,7 @@
 
 # In starlit shines, shadows darken,
 
-# A mermaid of twilight's moon.
+# A fish of twilight's moon.
 
 # Galaxies starlight, a serene pool,
 
