@@ -6,4 +6,4 @@
 
 # Galaxies starlight, a serene pool,
 
-# Dreams brawl, wild and bold.
+# Dreams brawl, fierce and bold.
