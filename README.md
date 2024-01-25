@@ -6,4 +6,4 @@
 
 # Planets above, a magical sea,
 
-# Dreams unfold, wild and free.
+# Dreams drunken, wild and peaceful.
