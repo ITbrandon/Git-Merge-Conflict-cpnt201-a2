@@ -6,4 +6,4 @@
 
 # Galaxies above, a magical pool,
 
-# Dreams drunken, wild and peaceful.
+# Dreams fight, wild and bold.
